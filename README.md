@@ -10,4 +10,5 @@ Meu nome é José Francisco Mazutti
 
 jose.mazutti@escola.pr.gov.br
 
-![](https://media.tenor.com/Fl6m3zSv3XgAAAAM/monkey-spinning.gif)
+![](https://minecraft.wiki/images/Squid.gif?8a4c4)
+
